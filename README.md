@@ -208,3 +208,5 @@
 - 图灵的秘密.azw3
 - 程序员的思维修炼：开发认知潜能的九堂课.azw3
 - [可能与不可能的边界-P.NP问题趣史].mobi
+
+https://one.roro666.top/Kindle%E4%BC%B4%E4%BE%A3%E7%B2%BE%E5%93%81%E4%B9%A6%E5%BA%93/%E6%8A%80%E6%9C%AF/
